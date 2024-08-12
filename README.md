@@ -8,4 +8,5 @@ Você pode entrar em contato comigo 📫
 amorim.souza.thiago@escola.pr.gov.br
 
 @thiagoamorim244
+È os D ne vida
 
